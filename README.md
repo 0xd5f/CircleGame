@@ -1,7 +1,6 @@
 
+![0529](https://github.com/user-attachments/assets/c6589fe7-3f3e-4b5b-881a-b3e438e16b1d)
 
-
-https://github.com/user-attachments/assets/e7ad36d8-9165-4b30-a5fe-1e26f1cdb67a
 
 
 # LZT Circle
